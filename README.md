@@ -1,4 +1,4 @@
-![jewelryWeChat](https://https://tva1.sinaimg.cn/large/007Gs0Tegy1gfvum9zylij31hl0t4nka.jpg)
+![](https://i.loli.net/2020/06/18/W62vMAEyRnplYgB.jpg)
 
 **请给珠宝一次机会！**
 
