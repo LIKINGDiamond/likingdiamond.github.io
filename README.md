@@ -1,8 +1,8 @@
 ![](https://i.loli.net/2020/06/18/W62vMAEyRnplYgB.jpg)
 
-**请给珠宝一次机会！**
+**专业主板定制工坊**
 
-**经营范围：18K黄金/玫瑰金/白金、钻石、彩宝、翡翠，高级珠宝定制WeChat：453058888**
+**经营范围：18K黄金/玫瑰金/白金、钻石、彩宝、翡翠，定制WeChat：jewelry800**
 
 #### Cartier 卡地亚
 * [戒指](https://www.cartier.cn/zh-cn/%E7%B3%BB%E5%88%97/%E7%8F%A0%E5%AE%9D%E7%B3%BB%E5%88%97/%E7%B1%BB%E5%88%AB/%E6%88%92%E6%8C%87.viewall.html)
